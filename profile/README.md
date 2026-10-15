@@ -1,4 +1,4 @@
-## Produk pertama yang menginspirasi Pi Apel
+## Produk pertama yang menginspirasi Yetanother Pi
 
 #### **Tl;dr semua pihak saling merasa gak enak.**
 
